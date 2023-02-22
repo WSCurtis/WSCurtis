@@ -1,4 +1,4 @@
-### Fairly new dev working on my skills 👋
+### New to coding and am working on improving my skills 👋
 
 
 Here are some ideas to get you started:
