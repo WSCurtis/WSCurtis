@@ -1,4 +1,4 @@
-### New to coding and am working on improving my skills 👋
+### Gamer, Coder, Woodworker
 
 
 Here are some ideas to get you started:
